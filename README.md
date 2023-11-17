@@ -12,7 +12,7 @@ eu sou uma pessoa um pouco dificil de lidar mais também sou muito engraçada e 
 amiga.Minha cor preferida é azul minha bebida favorita é suco de laranja natural[Comida Strogonoff 
 de frango] meu esporte preferido vole tambem gosto muito de dançar.
 <br>
-<br> Eumoro com minha mãe e com o meu padrastro e com os meu dois irmão agente mora no condominio 
+<br> Eu moro com minha mãe e com o meu padrastro e com os meu dois irmão agente mora no condominio 
 localizado na zona norte.No nosso tempo agente vai para casa da minha almoçar e passar o tempo com ela ou se não agente
 vai para algun churrasco.
 <br>
